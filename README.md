@@ -1,4 +1,4 @@
-## what I'm doing:
+## ⭐ what I'm doing:
 
 💼 Ops @ Atlas Fellowship / EA Funds / AI Futures Project; Research @ CMU
 
